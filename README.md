@@ -213,4 +213,4 @@ LEGO Indiana Jones is offered as the full free version with all features and upd
 Download LEGO Indiana Jones today and embark on an unforgettable adventure! Enjoy a safe download and have fun exploring the world of LEGO!
 
 ---
-**Last updated:** 2026-09-25 18:22:17 UTC
+**Last updated:** 2026-09-25 22:07:09 UTC
